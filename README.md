@@ -1,2 +1,4 @@
 # bhodhi-svaha
-Store for trading
+Set yourself free.
+
+
